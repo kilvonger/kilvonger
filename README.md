@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kilvonger
-- 👀 I’m interested in play PC game and watch anime 
+- 👀 I’m interested in play PC game and watch better call soul
 - 🌱 I’m currently learning in BGITU
 - 💞️ I’m looking to collaborate on Kagiwara
 - 📫 How to reach me NO
